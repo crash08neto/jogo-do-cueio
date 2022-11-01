@@ -1,0 +1,2 @@
+# jogo-do-cueio
+qwertyuiopasdfghjklçzxcvbnm
